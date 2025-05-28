@@ -26,8 +26,8 @@ I love turning raw data into actionable insights and solving real-world problems
 ---
 
 ## 📫 How to reach me:
-- **LinkedIn:**
-- **Email:** 
+- **LinkedIn:**  https://www.linkedin.com/in/sumit-yaduvanshi-18a999367/
+- **Email:** historicworld1999@gmail.com
 
 ---
 
